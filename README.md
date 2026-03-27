@@ -1,0 +1,1 @@
+# Variaciones-del-capital-social
